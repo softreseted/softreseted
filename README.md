@@ -1,6 +1,6 @@
 <S align="center"> 
 
 
-![](https://i.imgur.com/l5w4V5s.png)
+![](https://i.imgur.com/1vEJglK.png)
 
 </S>
